@@ -1,2 +1,0 @@
-# PROYECTO_CICLO4
-Ciclo 4
